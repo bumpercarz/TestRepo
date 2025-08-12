@@ -1,0 +1,1 @@
+Krezi Rapid Buts Haydol Hinde Purkit Gusyon Gamit Mo Hinde Na Mag Raped Buts Para Sabihen Ko Sayu Sa Mundu Ng Mubaylijins Lahaaaaaaat Ng Aytems Pwiding Gamitin Ng Hiros Naintindian Muba Aydul? Mag Aral Ka Munamabuti Aydul Tungkul sa Im el O Mubaylijins
